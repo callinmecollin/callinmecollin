@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently working on new skills and fundamentals
+Currently working on new skills and fundamentals.
 
 
 ## 🌐 Socials:
